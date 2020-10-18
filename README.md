@@ -1,1 +1,1 @@
-# Chicken-curry
+ A delicious Indian chicken curry made with a blend of spices and in a jiffy! Juggling with an unexpectedly sudden dinner party? Or don't feel like cooking much but still craving a chicken dish? Here's a quick chicken curry to your rescue!
